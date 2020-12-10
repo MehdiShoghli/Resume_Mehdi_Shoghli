@@ -1,6 +1,6 @@
 # MEHDI SHOGHLI
 
-### **mehdishoghli@gmail.com | 2068893747 | [Portfoli Link](owww.mehdishoghli.com)**
+### **mehdishoghli@gmail.com | 2068893747 | [Portfoli Link](www.mehdishoghli.com)**
 ---
 
 ## SUMMARY:
